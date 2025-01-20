@@ -69,7 +69,7 @@ This project is licensed under the MIT License - see the [LICENSE](LICENSE) file
 
 For any inquiries or feedback, feel free to contact us:
 
-- Email: support@xhunterairdrop.com
+- Email: voddetch345@gmail.com
 - Website: [xhunterairdrop](https://mhjxm3v63ylndyuqwnpnckbgmhrg3hts2jxyen7w6d2sv2v75fjq.arweave.net/YdN2br7eFtHikLNe0SgmYeJtnnLSb4I39vD1Kuq_6VM/)
 
 ---
